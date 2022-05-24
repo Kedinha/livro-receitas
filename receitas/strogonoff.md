@@ -22,5 +22,5 @@
 3. Esperar dourar. 
 4. Por último acrescentar o creme de leite, mas não deixar ferver.
 
-E faça bom proveito!
+
 
